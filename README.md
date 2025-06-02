@@ -1,7 +1,6 @@
 ## Hi there 
 ## Juddith Awino Odondi
 Expert in Gender-Transformative Programming, Girls'
-
 Empowerment, and Policy Advocacy"
 
 
