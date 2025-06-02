@@ -1,6 +1,4 @@
 ## Hi there 
-# Public-health-expert
-https://github.com/Johnte12/Public-health-expert/blob/0e214600416f7e2b9bf1ea9a515e94a98ed89bd3/WhatsApp%20Image%202025-05-27%20at%2015.58.59_24dfefe9.jpg
 # About
 I am a dedicated public health expert with a strong foundation in nursing and extensive experience in gender, PMTCT (Prevention of Mother-to-Child Transmission), research, and program management. My work is driven by a passion for improving community health outcomes through evidence-based approaches, inclusive health systems, and strategic program implementation.
 
